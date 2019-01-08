@@ -9,13 +9,13 @@
 - 1/2 cup tomatoes, diced
 - 1/2 green Serrano, Jalapeño, or Thai chile pepper
 - 5 cloves garlic
-- 1 teaspoon minced ginger minced
-- 1 teaspoon turmeric
 - 1 teaspoon salt
 - 1 teaspoon garam masala
 - 1/2 teaspoon ground Cumin
 - 1/2 teaspoon ground coriander
 - 1/2 teaspoon cayenne pepper (adjust to your preference)
+- 1 teaspoon minced ginger minced
+- 1 teaspoon turmeric
 - 1/2 cup water ( I used this to slosh about int he blender jar and then poured it into the Instant Pot)
 
 **For Finishing**
@@ -34,7 +34,7 @@ Place the chicken on top and push it down into the sauce just a little.
 
 Set it at High Pressure for 10 minutes and let it release pressure naturally.
 
-OR COOK 4-6 HOURS ON LOW IN SLOW COOKER
+Or cook 4-6 hours on low in slow cooker.
 
 Carefully take out the chicken and cut into bite size pieces.
 
